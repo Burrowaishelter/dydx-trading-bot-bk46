@@ -1,4 +1,4 @@
-# 
+# best Trading Bot for dydx trading bot | market-making & sniper-trades offers the most advanced dydx trading bot, with market-making and sniper-trades. Ideal for professional
 
 
 
